@@ -1,2 +1,3 @@
-## bom dia vietnã :LOL 
-![](https://github.com/user-attachments/assets/0cf0ae59-c3af-4437-856f-0676d6458337)
+## Tabela de preços tá pagante :LOL 
+![image](https://github.com/user-attachments/assets/6c981767-ce64-444a-a1ea-e1ce16f0421b)
+
